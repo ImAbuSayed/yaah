@@ -18,7 +18,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> يا روحي في الليل أبحث عن نور
+> قلبي يحترق و الشوق يثور
+> في صمت الظلام أسمع نداء
+> تعالى إلي، عانق السماء
 > ...
 
 📄 **[View Full Lyrics →](./lyrics.txt)**
